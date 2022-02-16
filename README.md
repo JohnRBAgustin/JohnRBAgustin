@@ -3,3 +3,8 @@
 
 — Brian Reynolds
 </blockquote>
+
+<blockquote><i>“If the world is a simulation, deja vu is a glitch in the matrix.”
+
+— Jantje Friese
+</blockquote>
